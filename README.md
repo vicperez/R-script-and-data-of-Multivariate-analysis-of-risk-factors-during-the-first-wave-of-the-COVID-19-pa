@@ -1,0 +1,1 @@
+# R-script-and-data-of-Multivariate-analysis-of-risk-factors-during-the-first-wave-of-the-COVID-19-pa
